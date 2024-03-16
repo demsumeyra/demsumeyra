@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 It's me:
 <br>Hello, I'm Sümeyra! 🙋🏻‍♀️<br>I'm trying to learn new things. 👩🏻‍💻
 
 
